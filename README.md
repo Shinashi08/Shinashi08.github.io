@@ -1,0 +1,1 @@
+# Shinashi08.github.io
